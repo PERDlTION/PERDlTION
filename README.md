@@ -5,5 +5,5 @@ $\text{\color{#ffffff}can't you see what you do to me?}$
 
 ![](https://i.postimg.cc/JhkWTdXz/ezgif-3154fe01da79087a.gif)
 
-$\text{\color{#ffffff}coy, they/he, plural. transmasc and queer}$\
-$\text{\color{#ffffff}c*h welcome, w2i for a kinda-but-not-really gauranteed response}$
+$\text{\color{#ffffff}coy, they/he, 18. plural. transmasc and queer}$\
+$\text{\color{#ffffff}c*h welcome, w2i for a fast-ish response}$
