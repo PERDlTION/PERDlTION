@@ -13,7 +13,7 @@ $\text{\color{#FF0000}c*h welcome, w2i for a fast-ish response}$
   
 ![](https://media1.tenor.com/m/sf09P6Kyp9sAAAAC/strangled-red-glitchy-red.gif)
 
-so called 'bestie' [silver](https://github.com/infugue) beats and whips me. do something about this ? send pranks [here](https://infugue.atabook.org) maybe ?
+so-called 'bestie 4 ever' [silver](https://github.com/infugue) beats and whips me. do something about this ? send pranks [here](https://infugue.atabook.org) maybe ?
 
 ![](https://i.postimg.cc/wTT0JNVB/Screenshot-2026-09-22-at-17-43-31.png)
 
