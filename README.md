@@ -1,5 +1,8 @@
 <div align="center">
 
+<table border="0" align="left">
+<th>
+  
 ![](https://i.postimg.cc/N5dt2NRB/red127.gif)　　![](https://komarev.com/ghpvc/?username=PERDlTION&color=FF0000&style=plastic&label=　　ᵎᵎ　　)　　![](https://i.postimg.cc/N5dt2NRB/red127.gif)
 
 ![](https://i.postimg.cc/ZK7jsrj0/ezgif-3e7f2ca340a43ad5.gif)
@@ -7,6 +10,12 @@
 
 $\text{\color{#FF0000}coy, they/he, 18. plural. taken, hi blur !}$\
 $\text{\color{#FF0000}c*h welcome, w2i for a fast-ish response}$
+
+</table>
+
+<div align="center">
+  
+![](https://i.postimg.cc/g2fvZ4c7/ezgif-32ef988ae0825b68.gif)
 
 <details>
 <summary>‎‎♡</summary>
