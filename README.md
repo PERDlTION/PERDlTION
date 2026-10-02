@@ -18,7 +18,8 @@ $\text{\color{#FF0000}c*h welcome, w2i for a fast-ish response}$
 ![](https://i.postimg.cc/g2fvZ4c7/ezgif-32ef988ae0825b68.gif)
 
 <details>
-<summary>‎‎♡</summary>
+
+<summary>$\color{#FF0000}{\textsf{♡}}$</summary>
   
 ![](https://media1.tenor.com/m/sf09P6Kyp9sAAAAC/strangled-red-glitchy-red.gif)
 
