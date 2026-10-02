@@ -1,19 +1,20 @@
 <div align="center">
-    
-$\text{\color{#ffffff}don't you know what i want?}$\
-$\text{\color{#ffffff}can't you see what you do to me?}$
 
-![](https://i.postimg.cc/JhkWTdXz/ezgif-3154fe01da79087a.gif)
+![](https://i.postimg.cc/N5dt2NRB/red127.gif)　　![](https://komarev.com/ghpvc/?username=PERDlTION&color=FF0000&style=plastic&label=　　ᵎᵎ　　)　　![](https://i.postimg.cc/N5dt2NRB/red127.gif)
 
-$\text{\color{#ffffff}coy, they/he, 18. plural. transmasc and queer}$\
-$\text{\color{#ffffff}c*h welcome, w2i for a fast-ish response}$
+![](https://i.postimg.cc/ZK7jsrj0/ezgif-3e7f2ca340a43ad5.gif)
 
-<br>
+
+$\text{\color{#FF0000}coy, they/he, 18. plural. taken, hi blur !}$\
+$\text{\color{#FF0000}c*h welcome, w2i for a fast-ish response}$
 
 <details>
-<summary>‎‎?</summary>
+<summary>‎‎♡</summary>
+  
+![](https://media1.tenor.com/m/sf09P6Kyp9sAAAAC/strangled-red-glitchy-red.gif)
+
+so called 'bestie' silver beats and whips me. do something about this ?
 
 ![](https://i.postimg.cc/wTT0JNVB/Screenshot-2026-09-22-at-17-43-31.png)
-Hey?
-<br>
-I'LL REDO THIS AND MAKE IT ACTUALLY CUTE EVENTUALLY.EVENTUALLY
+
+</details>
