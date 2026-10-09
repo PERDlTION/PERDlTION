@@ -21,6 +21,8 @@ $\text{\color{#FF0000}c*h welcome, w2i for a fast-ish response}$
 
 [blur](https://github.com/heartgoldd) ♡ [leon](https://github.com/DON-ROSINANTE) ⋆ [silver](https://github.com/infugue) ⋆ [gold](https://github.com/lxxmisz)
 </br>
+[seb](https://github.com/tainted-soul) ⋆ [zan](https://github.com/lronmary) my trio! sex vc 4 life !!
+</br>
 [ada](https://github.com/hypnos-lullaby) ( username twin ! ) ⋆ [archive](https://github.com/KALININGRAD-OBLAST) ( my pou i abuse ) ⋆ [ems](https://github.com/HEARTS-GOLD) ⋆ [tyler](https://github.com/ghostlygusher) my gang !
 </br>
 [kai](https://github.com/Flayedrocker) ⋆ [muff](https://github.com/pruss1a) ⋆ [grey](https://github.com/xeuntiz) ⋆ [chuu](https://github.com/cocopuuffs)
