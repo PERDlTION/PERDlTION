@@ -33,6 +33,15 @@ and others!! i love u all : )
 
 so-called 'bestie 4 ever' [silver](https://github.com/infugue) beats and whips me. cancel please.
 
+</br>
+
 ![](https://i.postimg.cc/wTT0JNVB/Screenshot-2026-09-22-at-17-43-31.png)
 
+infugue band!
+
+</br>
+
+![](https://i.postimg.cc/BvcRPKyp/Screenshot-2026-10-09-at-21-24-23.png)
+
+hi ems, ada and archive #chippasta
 </details>
