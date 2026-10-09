@@ -45,6 +45,8 @@ infugue band!
 </br>
 
 ![](https://i.postimg.cc/BvcRPKyp/Screenshot-2026-10-09-at-21-24-23.png)
+</br>
+![](https://i.postimg.cc/pdWMZCKG/Screenshot-2026-10-09-at-21-36-07.png)
 
 hi ems, ada and archive #chippasta
 </details>
