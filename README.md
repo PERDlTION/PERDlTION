@@ -19,13 +19,13 @@ $\text{\color{#FF0000}c*h welcome, w2i for a fast-ish response}$
 
 <summary>$\color{#FF0000}{\textsf{♡}}$</summary>
 
-[blur](https://github.com/heartgoldd) ♡ [leon](https://github.com/DON-ROSINANTE) ⋆ [silver](https://github.com/infugue) ⋆ [steven](https://github.com/lxxmisz)
+[blur](https://github.com/heartgoldd) ♡ [leon](https://github.com/DON-ROSINANTE) ⋆ [steven](https://github.com/lxxmisz)
 </br>
 [seb](https://github.com/tainted-soul) ⋆ [zan](https://github.com/lronmary) my trio! sex vc 4 life !!
 </br>
-[ada](https://github.com/hypnos-lullaby) ( username twin ) ⋆ [archive](https://github.com/KALININGRAD-OBLAST) ( the pou i abuse ) ⋆ [ems](https://github.com/HEARTS-GOLD) ⋆ [tyler](https://github.com/ghostlygusher) my gang !
+[silver](https://github.com/infugue) ⋆ [ada](https://github.com/hypnos-lullaby) ( username twin ) ⋆ [archive](https://github.com/KALININGRAD-OBLAST) ( the pou i abuse ) ⋆ [ems](https://github.com/HEARTS-GOLD) ⋆ [tyler](https://github.com/ghostlygusher) ⋆ [grey](https://github.com/xeuntiz) chippasta gc ! i don't have friends... i got family
 </br>
-[kai](https://github.com/Flayedrocker) ⋆ [muff](https://github.com/pruss1a) ⋆ [grey](https://github.com/xeuntiz) ⋆ [chuu](https://github.com/cocopuuffs)
+[kai](https://github.com/Flayedrocker) ⋆ [muff](https://github.com/pruss1a) ⋆ [chuu](https://github.com/cocopuuffs)
 </br>
 and others!! i love u all : )
 
@@ -34,7 +34,7 @@ and others!! i love u all : )
 
 ![](https://media1.tenor.com/m/sf09P6Kyp9sAAAAC/strangled-red-glitchy-red.gif)
 
-so-called 'bestie 4 ever' [silver](https://github.com/infugue) beats and whips me. cancel please.
+so-called 'bestie 4 ever' silver beats and whips me. cancel please.
 
 </br>
 
@@ -48,5 +48,5 @@ infugue band!
 </br>
 ![](https://i.postimg.cc/pdWMZCKG/Screenshot-2026-10-09-at-21-36-07.png)
 
-hi ems, ada and archive #chippasta
+hi ems, ada and archive. whatever the fuck this is
 </details>
