@@ -23,7 +23,7 @@ $\text{\color{#FF0000}c*h welcome, w2i for a fast-ish response}$
 </br>
 [seb](https://github.com/tainted-soul) ⋆ [zan](https://github.com/lronmary) my trio! sex vc 4 life !!
 </br>
-[silver](https://github.com/infugue) ⋆ [ada](https://github.com/hypnos-lullaby) ( username twin ) ⋆ [archive](https://github.com/KALININGRAD-OBLAST) ( the pou i abuse ) ⋆ [ems](https://github.com/HEARTS-GOLD) ⋆ [tyler](https://github.com/ghostlygusher) ⋆ [grey](https://github.com/xeuntiz) chippasta gc ! i don't have friends... i got family
+[silver](https://github.com/infugue) ⋆ [ada](https://github.com/hypnos-lullaby) ⋆ [archive](https://github.com/KALININGRAD-OBLAST) ⋆ [ems](https://github.com/HEARTS-GOLD) ⋆ [tyler](https://github.com/ghostlygusher) ⋆ [grey](https://github.com/xeuntiz) chippasta gc ! i don't have friends... i got family
 </br>
 [kai](https://github.com/Flayedrocker) ⋆ [muff](https://github.com/pruss1a) ⋆ [chuu](https://github.com/cocopuuffs)
 </br>
