@@ -25,7 +25,7 @@ $\text{\color{#FF0000}c*h welcome, w2i for a fast-ish response}$
 </br>
 [silver](https://github.com/infugue) ⋆ [ada](https://github.com/hypnos-lullaby) ⋆ [archive](https://github.com/KALININGRAD-OBLAST) ⋆ [ems](https://github.com/HEARTS-GOLD) ⋆ [tyler](https://github.com/ghostlygusher) ⋆ [grey](https://github.com/xeuntiz) chippasta gc ! i don't have friends... i got family
 </br>
-[kai](https://github.com/Flayedrocker) ⋆ [muff](https://github.com/pruss1a) ⋆ [chuu](https://github.com/cocopuuffs)
+[kai](https://github.com/Flayedrocker) ⋆ [muff](https://github.com/pruss1a) ⋆ [chuu](https://github.com/cocopuuffs) ⋆ [jaden](https://github.com/yubelsrevenge) ⋆ [raine](https://github.com/frostbittenkisses)
 </br>
 and others!! i love u all : )
 
