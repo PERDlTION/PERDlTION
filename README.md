@@ -51,6 +51,6 @@ infugue band!
 hi ems, ada and archive. whatever the fuck this is
 </details>
 
-[![](https://i.postimg.cc/ncRzsy8Y/129760108-uy3q-Qq0WPQi-Xg-Mu.gif)](https://eternitysend.straw.page)
+[![](https://i.postimg.cc/0j5kjfc3/ezgif-2a6c0f0addb8d931.gif)](https://eternitysend.straw.page)
 <br>
 $\text{\color{#FF0000}click to read about my pokepasta/au thing}$\
